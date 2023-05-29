@@ -1,7 +1,5 @@
 # reading_notes
 Reading Notes Repository 
-##Catalog
+## Catalog
 
-###Novel
-[link]
-
+### Novel
