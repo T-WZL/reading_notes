@@ -2,4 +2,4 @@
 Reading Notes Repository 
 ## Catalog
 
-### Novel
+### Literature
