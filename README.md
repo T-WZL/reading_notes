@@ -9,4 +9,6 @@ Reading Notes Repository
 
 *[In Progress]An Echo in the Darkness* [reading_note](./Literature/An_echo_in_the_darkness.md)
 
+
+*[Completed]Leaf By Niggle* [reading_note](./Literature/Leaf_By_Niggle.md)
 ### History
