@@ -1,4 +1,4 @@
-# Tilte - An echo in the darkness 《暗中回响》（Mark the Lion 系列第二部）
+# Tilte - An Echo in the Darkness 《暗中回响》（Mark the Lion 系列第二部）
 
 # Basic Info
 
