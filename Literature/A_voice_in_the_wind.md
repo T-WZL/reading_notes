@@ -1,4 +1,4 @@
-# Tilte - A Voice in the Wind 《风中之声》（Mark the Lion 系列第一部）
+# Tilte - A Voice in the Wind 《风中之声》（Mark Of the Lion 系列第一部）
 
 # Basic Info
 
