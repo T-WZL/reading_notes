@@ -11,4 +11,8 @@ Reading Notes Repository
 
 
 *[Completed]Leaf By Niggle(Chinese Version)* [reading_note](./Literature/Leaf_By_Niggle.md)
+
+
+*[In Progress]Yan Shou Ling(Chinese Version)* [reading_note](./Literature/Yan_Shou_Ling.md)
+
 ### History
