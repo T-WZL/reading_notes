@@ -10,9 +10,4 @@ Reading Notes Repository
 *[Completed]An Echo in the Darkness* [reading_note](./Literature/An_echo_in_the_darkness.md)
 
 
-*[Completed]Leaf By Niggle(Chinese Version)* [reading_note](./Literature/Leaf_By_Niggle.md)
-
-
-*[In Progress]Yan Shou Ling(Chinese Version)* [reading_note](./Literature/Yan_Shou_Ling.md)
-
 ### History
