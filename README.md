@@ -12,4 +12,4 @@ Reading Notes Repository
 
 ### autobiography
 
-*[In Progress]Queen of the Dark Chamber* [reading_note](./Literature/A_voice_in_the_wind.md) 
+*[In Progress]Queen of the Dark Chamber* [reading_note](./Literature/Queen_of_the_Dark_Chamber.md) 
