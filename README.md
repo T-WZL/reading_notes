@@ -10,4 +10,4 @@ Reading Notes Repository
 
 *[Completed]Queen of the Dark Chamber* [reading_note](./Literature/Queen_of_the_Dark_Chamber.md) 
 
-*[In porgress]The Pilgrim's Progress* [reading_note](./Literature/The_Pilgrims_Progress.md) 
+*[In Progress]The Pilgrim's Progress* [reading_note](./Literature/The_Pilgrims_Progress.md) 
