@@ -13,3 +13,5 @@ Reading Notes Repository
 *[In Progress]The Pilgrim's Progress* [reading_note](./Literature/The_Pilgrims_Progress.md) 
 
 *[In Progress]Mian Yang Shan* [reading_note](./Literature/Mian_Yang_shan.md) 
+
+*[In Progress]The Lion the Witch and the Wardrobe* [reading_note](./Literature/lion_witch_wardobe.md) 
