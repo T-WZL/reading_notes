@@ -14,4 +14,4 @@ Reading Notes Repository
 
 *[In Progress]Mian Yang Shan* [reading_note](./Literature/Mian_Yang_shan.md) 
 
-*[In Progress]The Lion the Witch and the Wardrobe* [reading_note](./Literature/lion_witch_wardrobe.md) 
+*[In Progress]Narnia* [reading_note](./Literature/narnia_essay.md) 
