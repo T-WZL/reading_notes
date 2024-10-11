@@ -312,12 +312,7 @@ C.S.路易斯非虚构散文最突出的特点之一就是他对隐喻的运用�
 
 每当预见到自己要步行超过30分钟时，我就会在动身时塞上入耳式耳机，播放《纳尼亚传奇》的有声书。除了活灵活现的朗读声外，耳中只剩下从骨骼传来的自己的脚步声。于是，在这样的脚步声中，我一次次地走进由文字幻化而成的纳尼亚王国。听《纳尼亚传奇》就像是坐上了一台从未玩过的过山车，只不过它行驶在一个布景巧妙却前途未知的空间里。这台车的行进速度刚好慢到足以让你有闲暇留意周围的景致；却又能快到令你不得不顾及轨道的设计所带来的心灵冲击，只是它绝不会快到令人不自觉地闭上眼睛，只顾尖叫的地步。——其实，布景就是C. S. Lewis的文笔；轨道则是《纳尼亚传奇》的情节，是作者的心灵和情感。而促你乐意坐完全程的就是你对探索的渴望。第一次坐上这台过山车游历纳尼亚王国时，我基本只专注于它奇幻的情节，不停地想知道后来发生了什么。翻看那些日子里的日记，我当时这样记录：
     
-    “好多个晚上，急需补觉又恰逢好不容易有早睡机会的我拿着手机钻进了被窝。我用手机的外放播放出“那一章”。就这样，有声有色的故事情节就开始在房间中流动萦绕。虽然每一卷只有一位朗诵者，但他/她讲得是那么的活灵活现。黑暗中，异国的声音幻化成一根浅蓝色的荧光棒，在天地间巨大的黑色幕墙上，勾画出不同的人物、景致、还有传奇。
-    这时候，我不确定文字和语言还存在不存在，我能确定的是：我，已经不是听众，而是台放映机。文字和语言通过我的耳朵，透过我的眼睛成为投放在那黑色幕墙上的影画。
-    那些听不懂的词、恍惚过去的句子，在不妨碍影片流畅性的前提下是用不着倒回去的，除非影片放着放着出现了逻辑问题。而那时想找到那个该死的卡壳却是出人意料的容易：倒回去重听一下好了。
-    就这样，那些好不容易可以补觉的晚上都没早睡成。每一章故事的朗读时间大约20分钟，然而一旦没有其它的安排，我会一不留神地听上至少两章——那可是至少40分钟的睡觉时间啊。
-    ……就写到这里，不去结尾。因为，意犹未尽……
-    补：听完之后，再回头仔细阅读不迟。”
+“好多个晚上，急需补觉又恰逢好不容易有早睡机会的我拿着手机钻进了被窝。我用手机的外放播放出“那一章”。就这样，有声有色的故事情节就开始在房间中流动萦绕。虽然每一卷只有一位朗诵者，但他/她讲得是那么的活灵活现。黑暗中，异国的声音幻化成一根浅蓝色的荧光棒，在天地间巨大的黑色幕墙上，勾画出不同的人物、景致、还有传奇。这时候，我不确定文字和语言还存在不存在，我能确定的是：我，已经不是听众，而是台放映机。文字和语言通过我的耳朵，透过我的眼睛成为投放在那黑色幕墙上的影画。那些听不懂的词、恍惚过去的句子，在不妨碍影片流畅性的前提下是用不着倒回去的，除非影片放着放着出现了逻辑问题。而那时想找到那个该死的卡壳却是出人意料的容易：倒回去重听一下好了。就这样，那些好不容易可以补觉的晚上都没早睡成。每一章故事的朗读时间大约20分钟，然而一旦没有其它的安排，我会一不留神地听上至少两章——那可是至少40分钟的睡觉时间啊。
 
 记不得自己什么时候听完了《The Last Battle》的最后一章FAREWELL TO SHADOWLANDS的最后一个段落：“And as He spoke He no longer looked to them like a lion; but the things that began to happen after that were so great and beautiful that I cannot write them. And for us this is the end of all the stories, and we can most truly say that they all lived happily ever after. But for them it was only the beginning of the real story. All their life in this world and all their adventures in Narnia had only been the cover and the title page: now at last they were beginning Chapter One of the Great Story which no one on earth has read: which goes on forever: in which every chapter is better than the one before.”
 
@@ -326,6 +321,7 @@ C.S.路易斯非虚构散文最突出的特点之一就是他对隐喻的运用�
 前几天读到一篇评论The Magician's Book: A Skeptic’s Adventures in Narnia（魔法书：一个怀疑论者的《纳尼亚传奇》奇遇记）的文章。其中有一句话道出了我的切身感受：“..., the seven volumes of "The Chronicles of Narnia" did more than open a door to one particular fictional place: They were the books that made readers of us.”（参考译文：七卷《纳尼亚传奇》何止开启了一扇通往奇幻世界的门，它们更造就了我们这群读者现今的阅读习惯。）
 
 当人们见识过白如玉、明如镜、薄如纸、声如磬的瓷质后，对其它物件难免会抱有敏感、亦或说是挑剔的态度。正是这种无法避免的态度导致我对今后电影版的《纳尼亚传奇》不再抱任何希望。我的确是因为看了电影《狮子、女巫、魔衣柜》后，才拿起早就在手边的有声书，从而才真正走入了那扇通往纳尼亚王国的门。只是当我读完原著又看了一遍电影后，发现原著太不适合拍成电影了——镜头实在难以展现C. S. Lewis笔下的精巧细节和细腻情感。虽然原著是一套儿童读物，但作为读者的我却不知不觉地与Lucy们一同走进纳尼亚王国，我并非旁观他们的奇遇，因为在C. S. Lewis的生花妙笔之下，他们的奇遇变成了我的奇遇。然而就已经发行的第二部电影《凯斯宾王子》来说，我能说的只有：“我十分想念《指环王》！”
+
 又因为这是一套儿童读物，书中到处彰显着作者对于小读者的责任感。就拿《狮子、女巫、魔衣柜》来说，作者再三“顺嘴”提到提醒小读者们躲进衣柜时不要把门关紧：
 “She immediately stepped into the wardrobe and got in among the coats and rubbed her face against them, leaving the door open, of course, because she knew that it is very foolish to shut oneself into any wardrobe.”
 “Lucy felt a little frightened, but she felt very inquisitive and excited as well. She looked back over her shoulder and there, between the dark tree trunks; she could still see the open doorway of the wardrobe and even catch a glimpse of the empty room from which she had set out. (She had, of course, left the door open, for she knew that it is a very silly thing to shut oneself into a wardrobe.)”
