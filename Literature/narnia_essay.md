@@ -710,3 +710,52 @@ In the final chapter, the celebration of the victory of the Old Narnia over the 
 The ending, while unifying the plot and themes of the book, does not complete the story of the title character’s growth. Prince Caspian describes Caspian’s initiation and the first steps toward his maturity: he rides off from his sheltered, secure home life “to seek adventures,” and as a result his face began to wear “a kinglier look.” But he is not yet ready to be king; on the whole his leadership of the army is unsuccessful. When Peter ar¬ rives, he takes command, and he, not Caspian, fights the decisive, character-testing duel. Lewis subordinates his title character in the second half of the book in order to allow his continued growth — in maturity, knowledge of Aslan, and trust in Aslan — to occur in The Voyage of the “Dawn Treader,” the second book of the “Caspian trilogy.” As a result, the theme of this story, the quality that gives the book its distinctive flavor, is not that of heroism, the reliance on human efforts, but that of trust, of handing everything over and relying completely on Another.
 
 虽然结尾统一了本书的情节和主题，但并未完成主角成长的故事。《凯斯宾王子》描述了凯斯宾的启蒙和迈向成熟的第一步：他从庇护、安全的家庭生活中“骑马去寻找冒险”，因此他的脸上开始带有“更王者的气质”。但他尚未准备好成为国王；总体而言，他领导军队并不成功。当彼得到达时，他接管了指挥权，是他，而不是凯斯宾，进行了决定性的、考验性格的决斗。刘易斯在书的後半部分将主角置于次要地位，以便让他的成长——在成熟、对阿斯兰的认识和对阿斯兰的信任方面——在《黎明踏浪号》，即“凯斯宾三部曲”的第二本书中继续进行。因此，这个故事的主题，赋予本书独特风味的特质，不是英雄主义，即依靠人类努力，而是信任，将一切交托并完全依靠另一位的品质。
+
+# 黎明踏浪号影评
+《纳尼亚之黎明踏浪号》有一个很亮很亮的亮点：扮演 EustaceScrubb的 Will Poulter。
+
+要说明Will Poulter同学好在哪里，得先说一说Eustace Scrubb小朋友是个怎样的人。
+
+C.S.Lewis笔下的Eustace是个自我中心的讨厌鬼，喜欢抱怨，没有礼貌，自以为书读得好，很傲慢，用爱德蒙的话说“是个ass”。 Pevensie家的孩子每年不得已才去拜访他家，彼此都讨厌对方。这一次爱德蒙和露西通过一幅图画进入纳尼亚（前两次是衣橱和车站），把尤斯塔斯也带进去了。
+
+尤同学去到纳尼亚，上了黎明踏浪号，觉得自己是被一群野蛮人绑架了，拒绝相信纳尼亚是另一个世界。他什么都抱怨，口头禅是“到了下个港口我要去找英国领事馆。”
+
+《黎明踏浪号》写得最好的是尤斯塔斯的成长，我很高兴地发现电影版演得最出彩的也是尤斯塔斯。当然，这样的角色容易出彩，不过选对人还是很重要的。
+
+Will Poulter两条淡眉毛45度角上挑，两只小眼睛总是闪着怀疑，嘴角含着刻薄和嘲讽，整个一乖戾不讨人喜欢的样子，一开口就是喜剧，浑身是戏，有他在绝不冷场，把爱德蒙和卡斯潘都比了下去，虽然他们是大帅哥。
+
+话说第一部《纳尼亚》上映是在2005年，我写它也正是五年前的今天，现在想来简直恍如隔世。《纳尼亚》一直是比较适合10岁左右孩子看的童话，这一部也是如此。《黎明踏浪号》感觉比《卡斯潘》好一些，跟第一部的风味接近，是很好的圣诞家庭电影。第N次呼吁：别小看给孩子看的电影。
+
+当然对我来说，Tilda Swinton演的白女巫作为爱德蒙的心魔一直出现，实在是有点腻味。
+
+花生米昨天收到的圣诞礼物里有一本《纳尼亚》，她今天看了电影回来在翻那本书，对我说：“原来第一本是《魔术师的侄子》，那个故事讲什么？”
+
+我说：“等家里做完装修，妈妈把那本书从书堆里找出来给你。你看完《哈利波特》就看《纳尼亚》吧，那套书比较容易读。”
+
+“为什么彼特和苏珊不能进入纳尼亚了？”
+
+“因为他们长大了。”
+
+“为什么长大了就不能进入纳尼亚了？”
+
+“因为大人没有想像力，不相信纳尼亚的存在。”
+
+“那你相信吗？”
+
+“我有点相信，可惜C.S.Lewis觉得大人都没有想像力，他不让我进。”
+
+“C.S.Lewis是谁？”
+
+“就是写这套书的作者，他是个了不起的作家。”
+
+“为什么大人不相信有纳尼亚？”她还是想不通。
+
+“比如说，你忽然对我说，你去了另一个地方，在那里过了好多年，还做了王后或公主，现在回来了，而这里的时间只过了一天，你觉得我会相信你吗？”
+
+她笑了，不再追问。
+
+几个小岛的顺序也有所调整，黑暗岛被放到了最后。于是可以说，高潮就发生在黑暗岛，众人大战恶心海蛇（海蛇是Edmund所想出来的，正如那个被困在这里的某某勋爵说的，这里能将噩梦现实化）。黑暗岛本身就是一个无限想象的地方，电影将“黑暗”扩大化，这里算是邪恶的源泉，这也很顺理成章。其实，黑暗岛只是一个载体与实体，真正的黑暗隐藏在每个人心中，每个人都会被诱惑与利用，要逃脱诱惑，需要的是坚定的信仰。
+
+故事最让我感动的是结尾，小老鼠Reepicheep决定去世界尽头追寻阿斯兰的国度，眼前海浪滔天，前途茫茫，阿斯兰国度似乎在遥不可及的远方。但他依然乘上船，拿起剑，带着帽子，顺着水流而上，他说：除了相信我们一无所有。
+
+Eustace变成了火龙。当大家围着火堆入眠时，他偷偷流泪。Reepicheep过来安慰他：Trouble is leaving. But not now. All is not lose as it seems. I will stay up with you if you wish, keep you company... You know, extraordinary things only happen to extraordinary people. Maybe it is a sign. That you got extraordinary destiny, something greater than you could have imagined.
